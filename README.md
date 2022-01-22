@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dark-Light435
+- 👀 I am interested in innovative projects. Development of a new environment in human life
+- 🌱 I am currently studying at school and am additionally fond of robotics.
+- 💞️ I am looking for cooperation with innovative companies and people who want to change the world with the help of technology
+- 📫 Email me here
